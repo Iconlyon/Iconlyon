@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-<!--
+<!--hello. I'm currently looking for a way to get money legally or illegally. Came from a very poor background and can't afford to die a poor nigga. Want to bring change in my family, want to be a rich mother fucker. 
 **Iconlyon/Iconlyon** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
